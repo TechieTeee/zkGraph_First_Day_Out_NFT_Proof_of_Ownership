@@ -1,1 +1,1 @@
-# zkGraph_First_Day_Out_NFT_Proof_of_Ownership
+# zkGraph First Day Out NFT Proof of Ownership

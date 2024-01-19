@@ -1,5 +1,4 @@
 
-![Uploading denny-muller-uWYedErgXgU-unsplash (1).jpg…]()
 
 # zkGraph First Day Out NFT Proof of Ownership
 
